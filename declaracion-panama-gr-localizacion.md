@@ -1,3 +1,5 @@
+Notas del subgrupo "localización" reunido en la Ciudad de Panamá por la Fundación Karisma en octubre de 2017 para componer la Declaración de Panamá sobre la Ciencia Abierta en evento paralelo al Cilac 2017, promovido por Unesco.  
+
 **Qué Ciencia Abierta? para qué? para quien? y cómo?**
 
 - Ciencia Abierta o Ciencias Abiertas? Concepto único o polisémico?
